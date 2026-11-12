@@ -1,7 +1,7 @@
 Tran Hau
 
-hautranset17@gmail.com
+Mail: hautranset17@gmail.com
 
-0395139138
+Phone: 0395139138
 
-Binh Duong
+Address: Binh Duong, HCM city
